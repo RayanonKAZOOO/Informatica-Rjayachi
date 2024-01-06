@@ -1,2 +1,2 @@
-# Informatica-Rjayachi
+# Informatica-Rayan Jayachi
 Informatica website
